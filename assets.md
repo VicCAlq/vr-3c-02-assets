@@ -2,7 +2,7 @@
 
 ## Personagens
 
-1. https://sketchfab.com/3d-models/blue-ocean-uniformista-efe5d356986f495281fa5c39743f9189
+1. https://sketchfab.com/3d-models/hatsune-miku-lbx-ver-yuki-custom-redesign-3e25df90d0b64cac93d7a6b8335ee2b1
 
 ## Criaturas
 
